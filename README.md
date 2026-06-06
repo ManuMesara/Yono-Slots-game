@@ -1,7 +1,7 @@
 <!DOCTYPE html>
 <html>
 <head>
-    <title>Yono Slots Referral</title>
+e    <title>Yono Slots Referral</titlyonogam>
 </head>
 <body>
 
